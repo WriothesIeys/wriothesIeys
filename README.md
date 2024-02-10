@@ -1,16 +1,8 @@
 
 
 
-![](https://pbs.twimg.com/media/F8GRcaXXoAA7Nsb?format=jpg&name=large)
-
-
-
-
-
-
-
-
-![](https://64.media.tumblr.com/569ad778d83083a647b06716cebd12b6/39e4db71d2fb827a-5a/s400x600/ada2ece19936378ba1a4ec3cb010613d67a45ff1.gifv)
-
+![](https://www.simpleimageresizer.com/_uploads/photos/ef48ad5c/wrioma_1_27.jpg)
 
  
+i like one piece (ep 525), genshin, jjk, pjsk, ace attorney, hrh, trigun and overwatch.
+talk to me and read my rentrys mwah
