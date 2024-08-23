@@ -1,4 +1,4 @@
-![hello-gojo-satoru](https://github.com/user-attachments/assets/b8f1d002-bb55-425e-b05d-1cdbb5841ce0)
+![gojo-satoru](https://github.com/user-attachments/assets/8bd4c92a-0849-45cd-a572-5bcda23c9ec6)
 
 HAI! I'm Crow or Pest (which ever you prefer)
 - 
